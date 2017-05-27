@@ -1,2 +1,1 @@
-# -
-项目管理相关资料
+Just Wanna Make Life Easy ！
